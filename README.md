@@ -2,3 +2,4 @@
 
 
  
+yeni şeyler öğrenmek lazım
